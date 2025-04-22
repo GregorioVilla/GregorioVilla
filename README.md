@@ -23,3 +23,6 @@ I'm constantly learning and refining my skills, always looking for challenging p
 ---
 
 📬 Feel free to reach out if you'd like to collaborate or just chat about tech!
+Email: GregoVilla02@gmail.com
+GitHub: GregorioVilla
+Phone: (Argentina) +54 2281665567
